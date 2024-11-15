@@ -1,3 +1,3 @@
 # GDSC
 
-#Thanks for visitting
+Thanks for visitting
